@@ -1,0 +1,1 @@
+Shiozakes epic final manifesto
